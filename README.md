@@ -2,8 +2,8 @@
 
 - Sou estudante de engenharia de Software, cursando na Unicesumar de Maringá
 - Atualmente trabalho com vendas;
-- Meu LinkedIn:
-  
+- Tenho interesse em ingressar na área de Análise de Dados, em constante aprendizado para fortalecer minhas habilidades técnicas;
+- 
 ##
  
 <div> 
